@@ -1,3 +1,3 @@
-Use com conhecimento e etica
+Use com conhecimento e ética
 
 Com grandes poderes vem grandes responsabilidades.
